@@ -889,13 +889,6 @@ ignoreErrors = ["error-remote-getjson", "error-missing-instagram-accesstoken"]
         url = "/categories/"
         title = ""
       [[languages.zh-tw.menu.main]]
-        weight = 4
-        identifier = "documentation"
-        pre = ""
-        name = "文章"
-        url = "/categories/documentation/"
-        title = ""
-      [[languages.zh-tw.menu.main]]
         weight = 5
         identifier = "about"
         pre = ""
@@ -931,8 +924,8 @@ ignoreErrors = ["error-remote-getjson", "error-missing-instagram-accesstoken"]
           enable = true
           gravatarEmail = ""
           avatarURL = "images/avatar.png"
-          title = "AndrewYEEE"
-          subtitle = "我的部落格，使用Hugo Framework與LoveIt主題"
+          title = "只求一切安好"
+          subtitle = "我的部落格，使用Hugo Framework與LoveIt主題建置"
           typeit = true
           social = true
           disclaimer = ""
