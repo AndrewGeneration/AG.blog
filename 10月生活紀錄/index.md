@@ -76,7 +76,7 @@
 媽媽組的熱湯+好茲的雞排+三明治
 父親很關心我的電腦狀況
 <div style="text-align: center">
-    <img src="/images/日常與紀錄/10月生活紀錄/20221120_好茲的雞排" width="50%"/>
+    <img src="/images/日常與紀錄/10月生活紀錄/20221120_好茲的雞排.jpg" width="50%"/>
 </div>
 
 
