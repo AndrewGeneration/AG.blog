@@ -106,9 +106,257 @@
 </div>
 
 
-## 觀影
+### 02/18
+第一次知道有華泰名城，跑去逛逛
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240218_131756.jpg" width="50%" />
+</div>
 
-## 閱讀
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240218_150259.jpg" width="50%" />
+</div>
 
-## 知識
 
+
+
+### 02/25
+第一次確診新冠肺炎，請假兩天，長官還一副不願意，幹
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240225_145624.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240228_195113.jpg" width="50%" />
+</div>
+
+
+### 03/09
+阿嬤感染心冠肺炎，住院，去看她
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240309_122355.jpg" width="50%" />
+</div>
+
+
+### 03/31
+陪媽媽到公司附近的雜貨店買陶瓷鍋
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240331_144419.jpg" width="50%" />
+</div>
+
+
+### 04/13
+母親手做水煎包，好吃
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240413_172100.jpg" width="50%" />
+</div>
+
+
+### 04/28
+入手小米平板電腦
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240428_162211.png" width="50%" />
+</div>
+
+### 05/05
+看阿嬤，發現以前爺爺的照片
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240505_112150.jpg" width="50%" />
+</div>
+
+### 05/10
+母親節那週，我去台北上課，在車站摔壞了用了兩年的水瓶
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240510_074911.jpg" width="50%" />
+</div>
+
+### 05/??
+我被告知升遷，整個問號，也覺得不知道是怎麼判斷的，但還好升遷了，因為我學弟下半年升遷，如果我比較晚升遷反而很尷尬。
+
+
+### 05/25
+第一次參加聯誼，有要到連絡方式，搞得我這幾天很緊張，當然是被退貨了，但至少經歷過。
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240525_105312.jpg" width="50%" />
+</div>
+ 
+
+
+### 06/03
+因為聯誼，這幾天搞得很緊張，第一次把機車弄丟
+
+
+
+### 06/06
+同事去日本玩，給了一包綜合巧克力，是好東西
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240606_174109.jpg" width="50%" />
+</div>
+
+
+
+### 06/10
+在垃圾堆撿到GamePass一個月，剛好我的過期了，爽賺
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240610_150801.jpg" width="50%" />
+</div>
+
+
+### 06/22
+第一次與家人打保齡球
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240622_134657.jpg" width="50%" />
+</div>
+
+
+### 07/13
+第一次買Lego的Lemans賽車9x8
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240713_214111.jpg" width="50%" />
+</div>
+
+
+### 07/20
+這週買了SteamDeck，花了1萬五
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240720_224213.jpg" width="50%" />
+</div>
+
+
+### 07/28 
+與母親去市場買菜，順便去南亞大論發，上次去已經是十年前的事情了
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240728_082428.jpg" width="50%" />
+</div>
+
+
+### 08/11
+這週沒有回家，很久沒有這樣看電影了
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240811_143708.jpg" width="50%" />
+</div>
+
+
+
+### 09/07
+參加手作蛋黃酥
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240907_181858.jpg" width="50%" />
+</div>
+
+### 09/14
+這天很特別，我們回新營，除了看外婆，特別去真武殿上帝廟求補運籤，希望我們全家健康平安快樂，有好運，一切順利。
+當天也看到了軌道車、以前年代的市場、買肉丸
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240914_102654.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240914_103000.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240914_103600.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240914_105322.jpg" width="50%" />
+</div>
+
+### 09/21
+媽媽跟我在愛買關門前跑去買東西，東西都被買光光，但我們買了雙鞋子，愛買9/31關門
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240921_191911.jpg" width="50%" />
+</div>
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20240921_195231.jpg" width="50%" />
+</div>
+
+
+
+
+### 10/12
+這週是國慶日，我們跑去新竹縣逛，吃麵
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241012_115452.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241012_123431.jpg" width="50%" />
+</div>
+
+
+### 11/14
+父親頸椎骨刺真的痛到受不了，跑去照核磁共振，發現骨刺已經傷到神經，11/13(三)母親已經陪父親入住醫院，11/14(四)下午開刀，晚上母親來車站接我的時候，母親已經很疲憊，而且因為一直用酒精，母親鼻子已經有點破皮，我決定換我留下照顧父親。
+我晚上留在醫院陪父親，父親狀況穩定，11/15(五)醫生就給出院，但傷到神經的部分，醫生說要幾個月才會好，希望趕快好起來。
+11/17與哥哥母親去竹蓮寺土地公拜拜，感謝神明保佑。
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241115_074606.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241117_100356.png" width="50%" />
+</div>
+
+
+### 11/24
+火車站前突然有市集，買盒手工餅乾
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241124_134050.jpg" width="50%" />
+</div>
+
+
+
+### 11/26
+突然看到網路上有人賣 飛行船的冒險 的原聲CD，馬上買下來
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241126_214831.jpg" width="50%" />
+</div>
+
+
+### 12/01
+去模型店逛看到30MS系列，突然有種想養老婆的衝動，花重金買幾組回來玩
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241201_200900.jpg" width="50%" />
+</div>
+
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241206_010000.jpg" width="50%" />
+</div>
+
+### 12/14
+這天去漁港練開車，回來的路上嘗試開車回家，父親說切換車道，換車道時有人突然插進來，我嚇到急煞車，再次起步時不知為何打到倒退檔，撞到後面的機車和汽車。
+還好已經有保險，目前狀況是保險還在處理中。
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241214_124337.jpg" width="50%" />
+</div>
+
+
+
+### 12/21
+哥哥去拜拜請求工作快樂順利，買了蛋糕，有隻麋鹿我從此記得。
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241221_184657.jpg" width="50%" />
+</div>
+
+### 12/29
+買了NCC-1701企業號模型，是絕版的當初2009年電影上映的模型，可以放CD片
+<div style="text-align: center">
+    <img src="/images/日常與紀錄/2024年/20241229_143545.jpg" width="50%" />
+</div>
+
+
+
+### 2024年末
+目前看起來，還算平安順利，謝謝上帝神明土地公的保佑，謝謝!!
+
+
+### 明年2025年(民國114年)的期許
+老樣子:
+1. 斷線資料量能夠穩定，樁功能連線都能穩定，不需要讓我操心
+2. 遇到的問題能夠迎刃而解，被指派的工作能夠順利解決，壓力不要太大，一切順利安穩快樂，後續工作安排也請不要為難我，拜託
+3. 不要讓我孤獨一人，不希望每次責任重大的項目都想我身上丟
+4. 遇到選擇，能夠沉著忍靜的應對，深思熟慮，做出正確的選擇，不要耍白癡在那為了凸顯或一時衝動做出傷害自己的舉動。
+5. 家人身體健康平安快樂，哥哥工作也能順利安穩。
+6. 希望人際關係能有所進展。
